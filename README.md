@@ -1,2 +1,0 @@
-# My-resume
-my portfolio
